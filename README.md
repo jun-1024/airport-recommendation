@@ -169,7 +169,7 @@ IEPL/IPLC专线</br>
 
 [八戒机场官网](https://43.129.78.33:2333/register?aff=OpjHo2xr)
 
-[八戒官网备用地址](http://bajie.pro/register?aff=A6pAEaJq)
+[八戒官网备用地址](http://bajie.at/register?aff=A6pAEaJq)
 
 > 说八戒机场可能不知道，但是提[魔戒机场]((https://mojie.host/register?aff=1VlZXWVA))，估计知道的人就很多了。魔戒是按流量计费的机场，看TG群里的用户数就已经超过1.8w了，实际用户只会更多。而八戒机场呢，可以说是魔戒机场的升级版。八戒机场不光是有魔戒的流量包，也推出了月付套餐，而且线路全部升级为IPLC/IEPL专线，在速度和稳定性上相较魔戒还是要高一些的。
 
