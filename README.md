@@ -167,7 +167,7 @@ IEPL/IPLC专线</br>
 
 最新地址：
 
-[八戒机场官网](https://bajie.la/register?aff=OpjHo2xr)
+[八戒机场官网](https://43.129.78.33:2333/register?aff=OpjHo2xr)
 
 [八戒官网备用地址](http://bajie.pro/register?aff=A6pAEaJq)
 
@@ -198,7 +198,7 @@ IEPL/IPLC专线</br>
 | ---- | ------ | ------- | ------- | ------- | -------- |
 | 价格 | ￥12.9 | ￥25.9  | ￥38.9  | ￥51.9  | ￥103.9  |
 
-[点击访问八戒机场](https://bajie.la/register?aff=OpjHo2xr)
+[点击访问八戒机场](https://43.129.78.33:2333/register?aff=OpjHo2xr)
 
 ## 五、SsdAirport
 
