@@ -250,7 +250,7 @@ IEPL/IPLC专线</br>
 
 最新地址:
 
-[flybit官网](https://1.flybit.network/#/register?code=IEXOJC66)
+[flybit官网](https://www.fastfastfast.buzz/#/register?code=IEXOJC66)
 
 [flybit官网备用地址](https://goflybit.com/#/register?code=IEXOJC66)
 
@@ -288,7 +288,7 @@ IEPL/IPLC专线</br>
 | ---- | ------- | ------- | ------- | ------- |
 | 价格 | ￥15    | ￥22    | ￥28    | ￥52    |
 
-[点击访问flybit](https://1.flybit.network/#/register?code=IEXOJC66)
+[点击访问flybit](https://www.fastfastfast.buzz/#/register?code=IEXOJC66)
 
 ## 知识科普
 
