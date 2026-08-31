@@ -285,7 +285,52 @@ IEPL/IPLC专线</br>
 [点击访问冲上云霄](https://cpdd.one/?r=222143)
 
 
-## 七、SsdAirport
+## 七、flybit
+
+最新地址:
+
+[flybit官网](https://www.fastfastfast.buzz/#/register?code=IEXOJC66)
+
+[flybit官网备用地址](https://goflybit.com/#/register?code=IEXOJC66)
+
+> flybit机场是一家主打高性价比的机场，提供IEPL专线节点，即使在晚高峰也能保证稳定的连接速度。最低套餐仅需15元/月，包含128G流量，非常适合对流量需求适中但追求稳定体验的用户。
+
+:rocket:设备：不限制，支持家庭成员共享。
+
+:rocket:媒体：解锁流媒体,ChatGPT。
+
+:rocket:传输：SS协议 | Secure隧道。
+
+:rocket:支持微信、支付宝。
+
+:rocket:节点: 香港、美国、日本、韩国、新加坡、印度、德国、英国等40+节点。包含中转节点和**专线**节点。
+
+🚫 新疆地区不要购买
+
+**flybit套餐**
+
+> 提供1天2G免费试用；
+>
+>
+> 优惠码(九折)：flybit
+
+- **按量付费**（不限时，用完再续）
+
+| 套餐    | 128GB  | 256GB  | 512GB   | 1024GB |
+| ------- | ------ | ------ | ------- | ------ |
+| 价格    | ￥36   | ￥68   | ￥128元 | ￥238  |
+| 1GB价格 | ￥0.28 | ￥0.26 | ￥0.25  | ￥0.23 |
+
+- **按月付费**
+
+| 套餐 | 128G/月 | 192G/月 | 256G/月 | 512G/月 |
+| ---- | ------- | ------- | ------- | ------- |
+| 价格 | ￥15    | ￥22    | ￥28    | ￥52    |
+
+[点击访问flybit](https://www.fastfastfast.buzz/#/register?code=IEXOJC66)
+
+
+## 八、SsdAirport
 
 最新地址：
 
@@ -331,49 +376,6 @@ IEPL/IPLC专线</br>
 
 [点击访问SsdAirport](https://ssdayoo.com?path=register&code=zotQe5d5)
 
-## 八、flybit
-
-最新地址:
-
-[flybit官网](https://www.fastfastfast.buzz/#/register?code=IEXOJC66)
-
-[flybit官网备用地址](https://goflybit.com/#/register?code=IEXOJC66)
-
-> flybit机场是一家主打高性价比的机场，提供IEPL专线节点，即使在晚高峰也能保证稳定的连接速度。最低套餐仅需15元/月，包含128G流量，非常适合对流量需求适中但追求稳定体验的用户。
-
-:rocket:设备：不限制，支持家庭成员共享。
-
-:rocket:媒体：解锁流媒体,ChatGPT。
-
-:rocket:传输：SS协议 | Secure隧道。
-
-:rocket:支持微信、支付宝。
-
-:rocket:节点: 香港、美国、日本、韩国、新加坡、印度、德国、英国等40+节点。包含中转节点和**专线**节点。
-
-🚫 新疆地区不要购买
-
-**flybit套餐**
-
-> 提供1天2G免费试用；
->
->
-> 优惠码(九折)：flybit
-
-- **按量付费**（不限时，用完再续）
-
-| 套餐    | 128GB  | 256GB  | 512GB   | 1024GB |
-| ------- | ------ | ------ | ------- | ------ |
-| 价格    | ￥36   | ￥68   | ￥128元 | ￥238  |
-| 1GB价格 | ￥0.28 | ￥0.26 | ￥0.25  | ￥0.23 |
-
-- **按月付费**
-
-| 套餐 | 128G/月 | 192G/月 | 256G/月 | 512G/月 |
-| ---- | ------- | ------- | ------- | ------- |
-| 价格 | ￥15    | ￥22    | ￥28    | ￥52    |
-
-[点击访问flybit](https://www.fastfastfast.buzz/#/register?code=IEXOJC66)
 
 ## 知识科普
 
