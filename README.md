@@ -251,7 +251,9 @@ IEPL/IPLC专线</br>
 
 [flybit官网](https://www.fastfastfast.buzz/#/register?code=IEXOJC66)
 
-[flybit官网备用地址](https://goflybit.com/#/register?code=IEXOJC66)
+[flybit官网备用地址1](https://www.fastfastfast.best/register?code=IEXOJC66)
+
+[flybit官网备用地址2](https://goflybit.com/#/register?code=IEXOJC66)
 
 > flybit机场是一家主打高性价比的机场，提供IEPL专线节点，即使在晚高峰也能保证稳定的连接速度。最低套餐仅需15元/月，包含128G流量，非常适合对流量需求适中但追求稳定体验的用户。
 
@@ -287,7 +289,7 @@ IEPL/IPLC专线</br>
 | ---- | ------- | ------- | ------- | ------- |
 | 价格 | ￥15    | ￥22    | ￥28    | ￥52    |
 
-[点击访问flybit](https://www.fastfastfast.buzz/#/register?code=IEXOJC66)
+[点击访问flybit](https://www.fastfastfast.buzz/#/register?code=hPcvpAwE)
 
 
 ## 七、网际快车
