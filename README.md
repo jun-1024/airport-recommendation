@@ -54,7 +54,7 @@ IEPL/IPLC专线</br>
 
 :rocket:解锁Claude Code / Codex / Gmini / Grok等。
 
-:rocket:覆盖20+国家/地区，共计**40+**节点。
+:rocket:覆盖20+国家/地区，共计40+节点。
 
 :rocket:不限制设备数量。
 
